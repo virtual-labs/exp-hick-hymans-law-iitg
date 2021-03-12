@@ -1,1 +1,1 @@
-## Experiment name
+## Hick Hyman's Law
